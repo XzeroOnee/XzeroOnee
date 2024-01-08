@@ -9,7 +9,7 @@
 
 - 📩 How to reach me **agussetiawans2023@gmail.com**
 
-- ⚡ Fun fact **I hate my self**
+- ⚡ Fun fact **I hate my self(it's fun right)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
